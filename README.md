@@ -26,3 +26,4 @@ Thank you for visiting! 🚀
 ![Python_Cerificate](https://github.com/user-attachments/assets/2df792bb-af64-46ee-87ce-67da36a251e0)
 ![React_Certificate](https://github.com/user-attachments/assets/cdd7168f-1ab9-4fed-8e98-7894fb74abc2)
 ![image](https://github.com/user-attachments/assets/299a1128-de08-4152-bd13-799e2eded960)
+<img width="1470" alt="Screenshot 2025-02-09 at 11 02 48 PM" src="https://github.com/user-attachments/assets/c6588883-3ed7-483a-b7fb-4b8d5ce89bd3" />
